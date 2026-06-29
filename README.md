@@ -5,4 +5,4 @@
 <img src="https://github.com/user-attachments/assets/a055b1a9-0f08-4828-9f1a-10d30e6b9f58" width= "520">
 <img src="https://github.com/user-attachments/assets/3fa82493-5d76-4a3a-9cc9-79d824740025" height="600">
 </p>
-ăn cháo đái bát, ảo tưởng tự luyến cùng cực. Cặp bài trùng với bạn H ( git echo####ly ) 
+ăn cháo đái bát, ảo tưởng tự luyến cùng cực. Cặp bài trùng với bạn H ( git echo#softly ) 
