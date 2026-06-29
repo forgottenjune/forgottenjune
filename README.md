@@ -9,4 +9,6 @@
 
 <a href=https://github.com/VinteSea/> 𝓰𝓲𝓽𝓱𝓾𝓫</a> 
 
-ăn cháo đái bát, ảo tưởng tự luyến cùng cực và là cặp bài trùng với bạn H ( git echo#softly ) 
+Vie/ ăn cháo đái bát, ảo tưởng tự luyến cùng cực và là cặp bài trùng với bạn H ( git echo#softly ) 
+</div>
+Eng/ Deeply treacherous, delusional, and narcissistic, believing himself to be perfect in every way, often hangs out with H ( who owns a GitHub account named echo#softly )
