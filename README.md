@@ -9,5 +9,4 @@
 
 <a href=https://github.com/VinteSea/> 𝓰𝓲𝓽𝓱𝓾𝓫</a> 
 
-ăn cháo đái bát, ảo tưởng tự luyến cùng cực 
-Cặp bài trùng với bạn H ( git echo#softly ) 
+ăn cháo đái bát, ảo tưởng tự luyến cùng cực và là cặp bài trùng với bạn H ( git echo#softly ) 
