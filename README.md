@@ -6,7 +6,7 @@
 <img src="https://github.com/user-attachments/assets/7a85b925-77b6-49aa-9c21-eb53c413c293" width ="400">
 <div align="center">
 
-<a href="https://drive.google.com/drive/folders/1y4n-kD46LfyMGexEa6XXnzErtogof4Vs">𝖔𝖓𝖎𝖔𝖓</a>
+<a href="https://drive.google.com/drive/folders/1y4n-kD46LfyMGexEa6XXnzErtogof4Vs">𝐨𝐧𝐢𝐨𝐧 </a>
 
 </div>
 <img src="https://github.com/user-attachments/assets/0acee679-c2a0-4811-a816-09915843140a" width="420">
@@ -14,6 +14,12 @@
 
 <div align="center">
 
-<a href="https://github.com/Winterany">@𝐖𝐢𝐧𝐭𝐞𝐫𝐚𝐧𝐲</a>
+<a href="https://github.com/Winterany">𝐖𝐢𝐧𝐭𝐞𝐫𝐚𝐧𝐲</a>
+
+</div>
+<div align="center">
+
+<b>t thà tin lời nyc bảo còn yêu hơn tin lời con ngọc bảo tý nữa game</b>
+<br>trùm scam kèo lq nha ae<br>
 
 </div>
