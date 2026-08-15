@@ -9,3 +9,11 @@
 <a href="https://drive.google.com/drive/folders/1y4n-kD46LfyMGexEa6XXnzErtogof4Vs">𝖔𝖓𝖎𝖔𝖓</a>
 
 </div>
+<img src="https://github.com/user-attachments/assets/0acee679-c2a0-4811-a816-09915843140a" width="420">
+</div align="center">
+
+<div align="center">
+
+<a href="LINK_CỦA_ANH">kid</a>
+
+</div>
