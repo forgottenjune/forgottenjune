@@ -11,3 +11,9 @@
 <b>ĐÓNG LINK, NHƯNG K QUÊN CHUYỆN CŨ</b>
 
 </div>
+<img src="https://github.com/user-attachments/assets/ef09b32a-8f92-4da0-8007-5b6b1a5e77ff">
+<div align="center">
+
+<b>chét cái gì lên base k biết =))</b>
+
+</div>
