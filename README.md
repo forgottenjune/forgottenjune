@@ -15,6 +15,7 @@
 <div align="center">
 
 <b>NÓI T ĂN CẮP STY NGHE HAY LẮM</b><br>
-<b>trong khi bản thân m đã tự ỉa ra được sty nào chưa?</b>
+<b>trong khi bản thân m đã tự ỉa ra được sty nào chưa? hay cũng chỉ là lũ bợ đít</b>
 </div>
 
+<h2 align="center">còn cập nhật</h2>
