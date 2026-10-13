@@ -8,12 +8,13 @@
 
 <div align="center">
 
-<b>ĐÓNG LINK, NHƯNG K QUÊN CHUYỆN CŨ</b>
-
+<b>ĐÓNG LINK, NHƯNG K QUÊN CHUYỆN CŨ</b><br>
+<b>t cũng k muốn nghe những lời bao biện. Ai bạn nó thì cứ việc block t, cảm ơn</b>
 </div>
 <img src="https://github.com/user-attachments/assets/ef09b32a-8f92-4da0-8007-5b6b1a5e77ff" width= "520">
 <div align="center">
 
-<b>chét cái gì lên base k biết</b>
-<b>z mà bảo t cop hay lắm</b>
+<b>NÓI T ĂN CẮP STY NGHE HAY LẮM</b><br>
+<b>trong khi bản thân m đã tự ỉa ra được sty nào chưa?</b>
 </div>
+
