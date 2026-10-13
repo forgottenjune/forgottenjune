@@ -6,5 +6,8 @@
 <img src="https://github.com/user-attachments/assets/762bb52d-c909-44ff-91d7-7129755fdc51" width ="400">
 <div align="center">
 
-<a href="https://drive.google.com/drive/folders/1y4n-kD46LfyMGexEa6XXnzErtogof4Vs">𝐨𝐧𝐢𝐨𝐧 </a>
+<div align="center">
 
+<b>ĐÓNG LINK, NHƯNG K QUÊN CHUYỆN CŨ</b>
+
+</div>
