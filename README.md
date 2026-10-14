@@ -11,7 +11,7 @@
 <b>ĐÓNG LINK, NHƯNG K QUÊN CHUYỆN CŨ</b><br>
 <b>t cũng k muốn nghe những lời bao biện. Ai bạn nó thì cứ việc block t, cảm ơn</b>
 </div>
-<img src="https://github.com/user-attachments/assets/ef09b32a-8f92-4da0-8007-5b6b1a5e77ff" width= "520">
+<img src="https://github.com/user-attachments/assets/a4d8c6b9-43cd-4e71-a767-8fcc54b5b2d9" width= "520">
 <div align="center">
 
 <b>NÓI T ĂN CẮP STY NGHE HAY LẮM</b><br>
