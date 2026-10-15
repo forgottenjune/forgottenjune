@@ -21,7 +21,5 @@
 <div align="center">
 
 <b>BẤT KÌ AI ĐÃ XẢY RA DRM VỚI @WINTERANY ĐỀU NẰM TRONG BLACKLIST CỦA T</b><br>
-<b>t không muốn tiếp xúc cũng như nghe giải thích từ ai đã từng xúc phạm, gây hấn với bồ t. Nếu được hãy block t luôn đi</b>
-</div>
 
 <h2 align="center">còn cập nhật</h2>
